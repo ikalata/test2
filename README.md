@@ -1,6 +1,2 @@
 ﻿Igor Kalata
-Igor Kalata
-
-
-
-mmmmnb
+Igor Kalata gg
